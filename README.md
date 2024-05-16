@@ -1,4 +1,5 @@
 # BOT FINULAB AUTO FARMING
+[![AIRDROP FAMILY IDN](https://img001.prntscr.com/file/img001/c4O_jVXhRTm9AKFgS-LXzw.png)](https://github.com/AirDropFamilyIDN/finulab)
 
 # Register
 - [LINK TO REGISTER](https://finulab.com/login/bRo1Lb)
